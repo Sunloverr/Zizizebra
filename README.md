@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Zizizebra
 - 👀 I’m interested in Drawing,reading, sleeping,eating, building lego and watching stars
-- 🌱 I’m currently learning Spanish and starting to learn poish tew
+- 🌱 I’m currently learning Spanish and starting to learn polish tew
 - 💞️ I’m looking to collaborate on heh..
 - 📫 How to reach me pony town,insta and tiktok
 - 😄 Pronouns: she/her
